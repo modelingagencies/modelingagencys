@@ -8,7 +8,7 @@ If you are thinking about working with an <a href="https://modelscouters.com/mod
 
 Models over the age of 30 are considered mature. It is believed that most of them have a mature figure, are typically taller than other models, and can be of any ethnicity and colour. There are many agencies that represent mature models in the fashion industry, including Ford Models, IMG Models, Elite Models, and Wilhelmina Models.
 
-Infancy to adolescence</b>
+<b>Infancy to adolescence</b>
 
 In children's clothing, we see children. Clothing for children is a form of clothing that was designed for children and is not the same as clothing for adults.
 
