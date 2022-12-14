@@ -1,6 +1,6 @@
 <h1>The Five Different Model Representations of Modeling Agencies</h1>
 
-<img src="https://i.imgur.com/Qw3S0hV.jpg?w=730" alt="Sales Coaching" style="float:left;width:350px;height:300px;">
+<center><img src="https://i.imgur.com/Qw3S0hV.jpg?w=730"></center>
 
 If you are thinking about working with an <a href="https://modelscouters.com/modeling-agencies">modeling agencies</a>, here are 5 different types you may want to consider.
 
